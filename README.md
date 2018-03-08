@@ -1,1 +1,1 @@
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=oGateg">入口</a>
+ <a href="https://s3.amazonaws.com/ogate/show.htm?r873651&from=dlzx">长春真相入口</a>
