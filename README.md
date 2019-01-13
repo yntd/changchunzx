@@ -3,7 +3,7 @@
  <br/>
  长春真相网<br/>
 
- <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?r873651&from=dlzx" rel="nofollow">入口</a>
+ <a href="https://s3.us-east-2.amazonaws.com/ogateo/show.htm?r873651&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?r873651&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r873651&from=dlzx" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?r873651&from=dlzx" rel="nofollow">入口</a>
@@ -17,7 +17,7 @@
    
  北京真相网<br/>
  
- <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?r873649&from=dlzx" rel="nofollow">入口</a>
+ <a href="https://s3.us-east-2.amazonaws.com/ogateo/show.htm?r873649&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?r873649&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r873649&from=dlzx" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?r873649&from=dlzx" rel="nofollow">入口</a>
@@ -29,7 +29,7 @@
  
  大陆真相网<br/>
  
- <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?r873656&from=dlzx" rel="nofollow">入口</a>
+ <a href="https://s3.us-east-2.amazonaws.com/ogateo/show.htm?r873656&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?r873656&from=dlzx" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r873656&from=dlzx" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?r873656&from=dlzx" rel="nofollow">入口</a>
