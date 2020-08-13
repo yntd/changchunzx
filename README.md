@@ -3,19 +3,19 @@
 
  长春真相网<br/>
 
- <a href="https://is.gd/P54cPT" rel="nofollow">入口</a>
+ <a id="ccLink" href="https://is.gd/P54cPT" rel="nofollow">入口</a>
     
 
   大陆真相网<br/>
   
- <a href="https://is.gd/RgWFwD" rel="nofollow">入口</a>
+ <a id="dlLink" href="https://is.gd/RgWFwD" rel="nofollow">入口</a>
 
 
       
       
   北京真相网<br/>
 
- <a href="https://is.gd/fMpYXu" rel="nofollow">入口</a>
+ <a id="bjLink" href="https://is.gd/fMpYXu" rel="nofollow">入口</a>
     
   
 
