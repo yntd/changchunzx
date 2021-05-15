@@ -6,13 +6,13 @@
 
 
    大陆真相网<br/>
-<a href="https://is.gd/qKjYIV" id="dlLink" rel="nofollow">入口</a>
+<a href="https://is.gd/TiOByG" id="dlLink" rel="nofollow">入口</a>
 
 
 
 
    北京真相网<br/>
-<a href="https://is.gd/jtyvOz" id="bjLink" rel="nofollow">入口</a>
+<a href="https://is.gd/TiOByG" id="bjLink" rel="nofollow">入口</a>
 
 
 
