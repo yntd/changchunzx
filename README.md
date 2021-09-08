@@ -1,4 +1,5 @@
 您好！请点击下面指示的“入口”，浏览此网站是安全的，且为您带来平安。。 <br/>
+点击入口后，请耐心等待， 过程中可能会出现无法打开的提示，请忽略，最终会进入网站. </br>
 
 法轮大法在长春<br/>
 <div style="padding:10px"><a style="margin:20px" href="https://j.mp/zcc3366" id="ccLink1" rel="nofollow">入口1</a> <a style="margin:20px" href="https://j.mp/3yQudGk" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" href="https://j.mp/3jRtRLd" id="ccLink3" rel="nofollow">入口3</a></div>
