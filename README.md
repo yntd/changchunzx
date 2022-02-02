@@ -2,11 +2,11 @@
 点击入口后，请耐心等待， 过程中可能会出现无法打开的提示，请忽略，最终会进入网站. </br>
 
 法轮大法在长春<br/>
-<div style="padding:10px"><a style="margin:20px" href="https://j.mp/zcc3366" id="ccLink1" rel="nofollow">入口1</a> <a style="margin:20px" href="https://j.mp/3ySaFBr" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" href="https://j.mp/3z8lK1r" id="ccLink3" rel="nofollow">入口3</a></div>
+<div style="padding:10px"><a style="margin:20px" href="https://ej.uz/jy6y" id="ccLink1" rel="nofollow">入口1</a> <a style="margin:20px" href="https://ej.uz/x41k" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" href="https://ej.uz/5uwq" id="ccLink3" rel="nofollow">入口3</a></div>
 
-<div style="padding:10px" ><a style="margin:20px" href="https://j.mp/3jW1hs8" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://j.mp/3yX7ubA" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://j.mp/3jVpZJ2" id="ccLink6" rel="nofollow">入口6</a></div>
+<div style="padding:10px" ><a style="margin:20px" href="https://ej.uz/87om" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://ej.uz/qxk2" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://ej.uz/m6pe" id="ccLink6" rel="nofollow">入口6</a></div>
 
-<div style="padding:10px"><a style="margin:20px" href="https://j.mp/2X37BFp" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://j.mp/3tsZAW7" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" href="https://j.mp/3yVDqgA" id="ccLink9" rel="nofollow">入口9</a></div>
+<div style="padding:10px"><a style="margin:20px" href="https://ej.uz/4xsr" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://ej.uz/1xm7" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" href="https://ej.uz/vgt4" id="ccLink9" rel="nofollow">入口9</a></div>
 
 <br/>
 
