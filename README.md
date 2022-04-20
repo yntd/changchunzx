@@ -6,7 +6,6 @@
 
 <div style="padding:10px" ><a style="margin:20px" target="_blank" href="https://tinyurl.com/y36cpdbx" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://tinyurl.com/4zt9bp6z" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://tinyurl.com/2p956xwv" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
 
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://tinyurl.com/4zvkehat" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://tinyurl.com/yu2uwa38" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="https://tinyurl.com/2wh6wkrf" id="ccLink9" rel="nofollow">入口9</a></div>
 
 <br/>
 
