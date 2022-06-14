@@ -2,11 +2,11 @@
 点击入口后，请耐心等待， 过程中可能会出现无法打开的提示，请忽略，最终会进入网站. </br>
 
 法轮大法在长春<br/>
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="http://d3k33yr6zwr46u.cloudfront.net/zytas?tubsgd" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="http://d2fzkk0wcu1nof.cloudfront.net/zytas?sethy" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="http://d13wlrnfzbybbd.cloudfront.net/zytas?rufwmfdk" id="ccLink3" rel="nofollow">入口3</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="http://d1y15wy2fyrsqt.cloudfront.net/zytas?lmwfrlf" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="http://dq9a5qulxzzyc.cloudfront.net/zytas?kwzab" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="http://d1e118tfan9ivg.cloudfront.net/zytas?edykspa" id="ccLink3" rel="nofollow">入口3</a></div>
 
-<div style="padding:10px" ><a style="margin:20px" target="_blank" href="http://d3k33yr6zwr46u.cloudfront.net/zytas?tubsgd" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="http://d2fzkk0wcu1nof.cloudfront.net/zytas?sethy" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="http://d13wlrnfzbybbd.cloudfront.net/zytas?rufwmfdk" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
+<div style="padding:10px" ><a style="margin:20px" target="_blank" href="http://d1y15wy2fyrsqt.cloudfront.net/zytas?lmwfrlf" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="http://dq9a5qulxzzyc.cloudfront.net/zytas?kwzab" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="http://d1e118tfan9ivg.cloudfront.net/zytas?edykspa" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
 
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="http://d3k33yr6zwr46u.cloudfront.net/zytas?tubsgd" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="http://d2fzkk0wcu1nof.cloudfront.net/zytas?sethy" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="http://d13wlrnfzbybbd.cloudfront.net/zytas?rufwmfdk" id="ccLink9" rel="nofollow">入口9</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="http://d1y15wy2fyrsqt.cloudfront.net/zytas?lmwfrlf" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="http://dq9a5qulxzzyc.cloudfront.net/zytas?kwzab" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="http://d1e118tfan9ivg.cloudfront.net/zytas?edykspa" id="ccLink9" rel="nofollow">入口9</a></div>
 
 <br/>
 
