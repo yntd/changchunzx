@@ -2,11 +2,11 @@
 点击入口后，请耐心等待， 过程中可能会出现无法打开的提示，请忽略，最终会进入网站. </br>
 
 法轮大法在长春<br/>
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d1fhkvotzhrufs.cloudfront.net/2Qpsp?acewpw" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="https://d3lla5zfu7xcxm.cloudfront.net/2Qpsp?njynhl" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="https://d1wuk3e1n0vkou.cloudfront.net/2Qpsp?qeean" id="ccLink3" rel="nofollow">入口3</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://dkiob48w4dn8a.cloudfront.net/2Qpsp?rrglfqes" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="https://d2twq8frlny9ed.cloudfront.net/2Qpsp?axnjdps" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="https://d3uqecopfmt8wz.cloudfront.net/2Qpsp?krwlfnji" id="ccLink3" rel="nofollow">入口3</a></div>
 
-<div style="padding:10px" ><a style="margin:20px" target="_blank" href="https://d1fhkvotzhrufs.cloudfront.net/2Qpsp?acewpw" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://d3lla5zfu7xcxm.cloudfront.net/2Qpsp?njynhl" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://d1wuk3e1n0vkou.cloudfront.net/2Qpsp?qeean" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
+<div style="padding:10px" ><a style="margin:20px" target="_blank" href="https://dkiob48w4dn8a.cloudfront.net/2Qpsp?rrglfqes" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://d2twq8frlny9ed.cloudfront.net/2Qpsp?axnjdps" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://d3uqecopfmt8wz.cloudfront.net/2Qpsp?krwlfnji" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
 
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d1fhkvotzhrufs.cloudfront.net/2Qpsp?acewpw" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://d3lla5zfu7xcxm.cloudfront.net/2Qpsp?njynhl" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="https://d1wuk3e1n0vkou.cloudfront.net/2Qpsp?qeean" id="ccLink9" rel="nofollow">入口9</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://dkiob48w4dn8a.cloudfront.net/2Qpsp?rrglfqes" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://d2twq8frlny9ed.cloudfront.net/2Qpsp?axnjdps" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="https://d3uqecopfmt8wz.cloudfront.net/2Qpsp?krwlfnji" id="ccLink9" rel="nofollow">入口9</a></div>
 
 <br/>
 
