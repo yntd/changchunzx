@@ -2,11 +2,11 @@
 点击入口后，请耐心等待， 过程中可能会出现无法打开的提示，请忽略，最终会进入网站. </br>
 
 法轮大法在长春<br/>
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d24zmk0sytzckg.cloudfront.net/2Qpsp?xfvllz" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="https://dpdzp61d0ju16.cloudfront.net/2Qpsp?myftpu" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="https://d1ny26xa452e6a.cloudfront.net/2Qpsp?xhxurwa" id="ccLink3" rel="nofollow">入口3</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d3unwrazr1wifk.cloudfront.net/2Qpsp?tadkn" id="ccLink1" rel="nofollow">入口1</a> <a target="_blank" style="margin:20px" href="https://d2tf0akm7n4jvy.cloudfront.net/2Qpsp?xxkpthg" id="ccLink2" rel="nofollow">入口2</a> <a style="margin:20px" target="_blank" href="https://djm57vr7habmc.cloudfront.net/2Qpsp?doqdtla" id="ccLink3" rel="nofollow">入口3</a></div>
 
-<div style="padding:10px" ><a style="margin:20px" target="_blank" href="https://d24zmk0sytzckg.cloudfront.net/2Qpsp?xfvllz" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://dpdzp61d0ju16.cloudfront.net/2Qpsp?myftpu" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://d1ny26xa452e6a.cloudfront.net/2Qpsp?xhxurwa" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
+<div style="padding:10px" ><a style="margin:20px" target="_blank" href="https://d3unwrazr1wifk.cloudfront.net/2Qpsp?tadkn" id="ccLink4" rel="nofollow">入口4</a> <a style="margin:20px" href="https://d2tf0akm7n4jvy.cloudfront.net/2Qpsp?xxkpthg" target="_blank" id="ccLink5" rel="nofollow">入口5</a> <a style="margin:20px" href="https://djm57vr7habmc.cloudfront.net/2Qpsp?doqdtla" target="_blank" id="ccLink6" rel="nofollow">入口6</a></div>
 
-<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d24zmk0sytzckg.cloudfront.net/2Qpsp?xfvllz" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://dpdzp61d0ju16.cloudfront.net/2Qpsp?myftpu" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="https://d1ny26xa452e6a.cloudfront.net/2Qpsp?xhxurwa" id="ccLink9" rel="nofollow">入口9</a></div>
+<div style="padding:10px"><a style="margin:20px" target="_blank" href="https://d3unwrazr1wifk.cloudfront.net/2Qpsp?tadkn" id="ccLink7" rel="nofollow">入口7</a> <a style="margin:20px" href="https://d2tf0akm7n4jvy.cloudfront.net/2Qpsp?xxkpthg" target="_blank" id="ccLink8" rel="nofollow">入口8</a> <a style="margin:20px" target="_blank" href="https://djm57vr7habmc.cloudfront.net/2Qpsp?doqdtla" id="ccLink9" rel="nofollow">入口9</a></div>
 
 <br/>
 
